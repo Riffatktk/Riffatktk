@@ -1,4 +1,4 @@
-## Hi Everyone! riffat is here 👋
+## Hi Everyone! Riffat is here 👋
 
 
 # 💫 About Me:
